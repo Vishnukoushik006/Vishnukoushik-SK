@@ -1,2 +1,2 @@
 # Vishnukoushik-SK
-Hi iam S.VISHNU KOUSHIK
+Hi Iam S.VISHNU KOUSHIK
